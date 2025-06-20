@@ -1,6 +1,6 @@
 ## Hi, I'm Olamide 👋
 
-🤖 Electrical &Computer Engineer at UAlbany<br/>
+🤖 Electrical & Computer Engineering student at UAlbany<br/>
 👾 Just here to have fun and code<br/>
 💕 Follow me on [Instagram](https://www.instagram.com/ade_ilmo/)
 
